@@ -4,6 +4,6 @@
 - 📫 How to reach me: tallapallym99@gmail.com
 - 😄 Pronouns: (she/her)
 - ⚡ Fun fact: I love reading novels!! Always up for a good fantasy books. suggest any if you know!
-- 
+
 
 
